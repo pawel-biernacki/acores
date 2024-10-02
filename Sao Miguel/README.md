@@ -200,13 +200,12 @@ Wieczorny przylot – czas na odbiór wynajętego samochodu, transfer do hotelu 
 ---
 
 
-### Dzień 9 (niedziela, 13 października) – Powrót
+### Dzień 9 (niedziela, 13 października) – Flores
 **Transfer na lotnisko** – Krótki transfer na lotnisko na poranny wylot.  
 **Czas: 30 minut**  
 **Notatka:** Upewnij się, że masz wszystkie dokumenty podróżne i bagaż spakowany.  
 **Godzina:** 07:00 – 07:30  
 **Uwaga:** Oddaj wynajęty samochód na lotnisku co najmniej 2 godziny przed wylotem.  
-**Parking:** Sprawdź, czy parking na lotnisku jest płatny i jakie są opcje płatności.  
 **Wynajem samochodu:** Zwróć wynajęty samochód w tym samym miejscu, w którym go odebrałeś.  
 ![Transfer na lotnisko](https://upload.wikimedia.org/wikipedia/commons/3/3e/Airport.jpg)
 

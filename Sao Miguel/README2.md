@@ -116,6 +116,21 @@
    - **Uwaga**: Idealne miejsce na naukę i zrozumienie geologii wyspy.
 
 ### Dzień 5 (środa, 9 października) – Nordeste (kontynuacja)
+
+Miradouro da Ponta do Sossego
+Piękny punkt widokowy na klify i ocean.
+Czas: 30 minut
+Godzina: 09:00 – 09:30
+Godziny otwarcia: 24/7
+Uwaga: Zabierz ze sobą aparat fotograficzny.
+
+Miradouro da Ponta da Madrugada
+Kolejny widok na wschodnie klify São Miguel.
+Czas: 30 minut
+Godzina: 10:00 – 10:30
+Godziny otwarcia: 24/7
+Uwaga: Zabierz ze sobą
+
 3. **Trekking Salto do Prego**
    - Przepiękna trasa przez las do jednego z najpiękniejszych wodospadów na wyspie.
    - **Czas**: 2–3 godziny
